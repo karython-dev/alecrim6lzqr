@@ -1,1 +1,0 @@
-# alecrim6lzqr
